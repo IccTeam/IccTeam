@@ -1,4 +1,4 @@
-![1000017578](https://github.com/user-attachments/assets/4b03c8c7-dac8-41f0-abdb-628df9836664) alt="Intelligence Cyber Community
+![1000017578](https://github.com/user-attachments/assets/4b03c8c7-dac8-41f0-abdb-628df9836664)
 
 # Welcome to Intelligence Cyber Community (IccTeam)
 
