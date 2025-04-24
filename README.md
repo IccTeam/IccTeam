@@ -1,4 +1,4 @@
-<img src="https://iili.io/3MzcMGa.th.png" alt="ICC Banner" style="width:100%; border-radius: 12px;">
+![1000017578](https://github.com/user-attachments/assets/6d53e7f1-c270-4e2b-aab1-bdc613ee81d6)
 
 # Welcome to Intelligence Cyber Community (IccTeam)
 
