@@ -16,5 +16,6 @@ A powerful phone number tracking tool that uses up to 5 different scanning metho
 - TikTok: [@iccfficial](https://tiktok.com/@iccfficial)
 - YouTube: [@iccfficial](https://youtube.com/@iccfficial)
 - WhatsApp: [Contact Us](https://wa.me/+6283848301116)
+- Telegram: [Join Our Channel] (https://t.me/owltracker)
 
 > *We track ethically, we build responsibly, we share for awareness.*
